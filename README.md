@@ -1,2 +1,2 @@
-Holi holi
+Holi
 
